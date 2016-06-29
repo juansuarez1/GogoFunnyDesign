@@ -1,1 +1,1 @@
-# GogoFunnyDesign.github.io
+# juansuarez1.github.io
